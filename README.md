@@ -1,0 +1,1 @@
+# yamatoKOBAYASHI.github.io
